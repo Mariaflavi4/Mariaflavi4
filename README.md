@@ -2,4 +2,4 @@
 - 👀 I’m interested in  crescer profissionalmente na área de TI.
 - 🌱 I’m currently learning C++ , C# , JavaScript e Ingl.
 - 💞️ I’m looking to collaborate on uma organização que apoie o crescimento de seus funcionários, proporcionando uma ótima carreira profis.
-- 📫 How to reach me : WhatsApp - 16982099004 | Email: Mariaflavia735@gmail.com
+- 📫 How to reach me : WhatsApp - 16982099004 | Email: Mariaflavia735@gmail.com | https://www.linkedin.com/in/maria-fl%C3%A1via-da-silva-ribeiro-aa3019170/
