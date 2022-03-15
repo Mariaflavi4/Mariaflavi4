@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mariaflavi4
+- 👀 I’m interested in  crescer profissionalmente na área de TI.
+- 🌱 I’m currently learning C++ , C# , JavaScript e Ingl.
+- 💞️ I’m looking to collaborate on uma organização que apoie o crescimento de seus funcionários, proporcionando uma ótima carreira profis.
+- 📫 How to reach me : WhatsApp - 16982099004 | Email: Mariaflavia735@gmail.com
