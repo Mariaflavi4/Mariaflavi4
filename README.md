@@ -1,6 +1,9 @@
 🤿 Assistente de Dados Jr.
+
 ⚡ Graduada em Análise e Desenvolvimento de Sistemas
+
 🔭 Especializada na criação de dashboards no Looker, elaboração de fórmulas no Google Planilhas e desenvolvimento de relatórios.
+
 🌱 Estudando para que eu possa me especializar melhor na área de Dados.
 
 💡 Conheça mais sobre mim
